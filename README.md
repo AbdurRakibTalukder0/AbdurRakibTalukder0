@@ -1,1 +1,1 @@
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&size=30&pause=1000&color=BDBDBD&width=440&lines=As+Salaam+Alaikum+;I'am+Abdur+Rakib+Talukder;I+like+to+do+Group+Work!)](https://git.io/typing-svg)
